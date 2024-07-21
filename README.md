@@ -1,4 +1,4 @@
-                                     ``⊹ ࣪ ˖ - '' I'm glad nothing exploded.. ''``
+                                     ⊹ ࣪ ˖ - '' I'm glad nothing exploded.. ''
 ![image](https://github.com/user-attachments/assets/ebd51349-60d8-498e-9ad9-d20948826023)
                 ꒰ᐢ. .ᐢ꒱₊˚⊹ ．Boxten / Vee — he/it/xe
                 

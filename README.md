@@ -1,5 +1,5 @@
-                                     ⊹ ࣪ ˖ - '' I'm glad nothing exploded.. ''
-![image](https://github.com/user-attachments/assets/ebd51349-60d8-498e-9ad9-d20948826023)
-                ꒰ᐢ. .ᐢ꒱₊˚⊹ ．Boxten / Vee — he/it/xe
+                                     ⊹ ࣪ ˖ - '' READY OR NOT, HERE I COME.. ''
+![image](https://i.pinimg.com/736x/b0/04/bb/b004bb7b69d1007e28fc508fd6db9a2e.jpg)
+                ꒰ᐢ. .ᐢ꒱₊˚⊹ ． Sawnoob / Hacksaw — he/it/xe
                 
-[Roblox!](https://www.roblox.com/users/3631575391/profile) | [Rentry!](https://rentry.co/dangersignmania) | [Twitter!](https://x.com/vivdeocassete)
+[MY ROBLOX ACC!](https://www.roblox.com/users/3631575391/profile)

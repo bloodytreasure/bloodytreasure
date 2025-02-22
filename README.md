@@ -14,3 +14,16 @@ i go by he/it/xe/hate respectfully, i do have a preference for it/hate/he tho!
 - I make A LOT of nsfw jokes, my humor is also very based on violent topics, slur usage, etc.
 - I'm a (harmless) paraphile. I'm objectum and a robloxphile.
 - I get comfortable EASILY. If you're uncomfortable by my actions, please tell me so!
+- I have no dni, I block freely.
+
+# INTERESTS :
+
+- Roblox in general
+- Rochas313 arg
+- Old Roblox myths
+- Forsaken
+- The Robloxia: Until Dawn
+- Friday Night Funkin' — Hello John Doe
+- Roblox hackers
+- Minus Elevation
+- Dream Game

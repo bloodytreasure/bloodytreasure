@@ -15,6 +15,8 @@ i go by he/it/xe/hate respectfully, i do have a preference for it/hate/he tho!
 - I'm a (harmless) paraphile. I'm objectum and a robloxphile.
 - I get comfortable EASILY. If you're uncomfortable by my actions, please tell me so!
 - I have no dni, I block freely.
+- I'm a yumeshipper.
+- I have a typing quirk (z instead of s). If you can't understand me, ask for a translation.
 
 # INTERESTS :
 

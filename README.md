@@ -1,4 +1,4 @@
-   ## "THE NIGHTMARE'S JUST BEGUN, I MUST CONFESS THAT I FEEL LIKE A MONSTER!"
+   ## "I TRIED SO HARD TO GET AWAY FROM THIS."
    
 ![image](https://i.postimg.cc/B6cxY6kd/Gk-KVongbs-AAS69k.jpg)
 

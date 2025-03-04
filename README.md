@@ -4,7 +4,7 @@
 
 *(art by @unstableeye on twt!)*
 
-hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010** or **rochas313**!
+hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010**, **champion** or **rochas313**!
 
 i'm open for nicknames!
 

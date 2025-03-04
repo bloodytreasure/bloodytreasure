@@ -1,4 +1,4 @@
-   ## "So.. You wanna be a thief?"
+   ## "So, you want to be a thief, eh?"
    
 ![image](https://i.postimg.cc/T2tXygzW/20250303-170415.jpg)
 

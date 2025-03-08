@@ -17,7 +17,7 @@ i go by **he/it/xe/hate** respectfully, i do have a preference for it/hate/he th
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so!
 - I have no dni, I block **freely**.
 - I'm a yumeshipper.
-- I have a typing quirk **(z instead of s)**. If you can't understand me, **ask for a translation**.
+- I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
 
 # INTERESTS :

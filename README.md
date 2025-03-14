@@ -1,10 +1,10 @@
-   ## "So, you want to be a thief, eh?"
+   ## "You left me no choice!"
    
-![image](https://i.postimg.cc/T2tXygzW/20250303-170415.jpg)
+![image](https://i.postimg.cc/NMdDkLXQ/20250313-233635.jpg)
 
-*(art by @unstableeye on twt!)*
+*(forgot who made the art, srry!)*
 
-hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010**, **champion** or **rochas313**!
+hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010**, **birthday battler** or **rochas313**!
 
 i'm open for nicknames!
 

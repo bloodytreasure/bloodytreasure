@@ -1,8 +1,8 @@
-   ## "You left me no choice!"
+   ## "TIME TO GET BANNED!"
    
-![image](https://i.postimg.cc/NMdDkLXQ/20250313-233635.jpg)
+![image](https://i.postimg.cc/C1HxcF31/Screenshot-20250314-144006-X.jpg)
 
-*(forgot who made the art, srry!)*
+*(art by @soundwavesfag on twt!)*
 
 hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010**, **birthday battler** or **rochas313**!
 

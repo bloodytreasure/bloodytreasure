@@ -1,8 +1,8 @@
-   ## "TIME TO GET BANNED!"
+   ## "MOD ABUSE!"
    
-![image](https://i.postimg.cc/C1HxcF31/Screenshot-20250314-144006-X.jpg)
+   ![Screenshot-20250324-020144.jpg](https://i.postimg.cc/yYtCYrm7/Screenshot-20250324-020144.jpg)
 
-*(art by @soundwavesfag on twt!)*
+*(forgot who made the art.. sorry.)*
 
 hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010**, **birthday battler** or **rochas313**!
 
@@ -19,6 +19,8 @@ i go by **he/it/xe/hate** respectfully, i do have a preference for it/hate/he th
 - I'm a yumeshipper.
 - I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
+- I'm the **BIGGEST** EXEC (TBB) fan, gift me EXEC skins.
+
 
 # INTERESTS :
 *(***bold*** equals hyperfixiations)*

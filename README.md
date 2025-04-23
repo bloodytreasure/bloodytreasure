@@ -4,7 +4,7 @@
 
 *(forgot who made the art.. sorry.)*
 
-hi, my name's **c00lkidd**! but you can also call me **sawnoob**, **rust_010**, **birthday battler** or **rochas313**!
+hi, my name's **c00lkidd**! but you can also call me **turking**, **birthday battler**, **tumored battler** or **rochas313**!
 
 i'm open for nicknames!
 

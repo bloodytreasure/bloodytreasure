@@ -1,8 +1,7 @@
-   ## "MOD ABUSE!"
+   ## "IT'S OVER.. OR IS IT?"
    
-   ![Screenshot-20250324-020144.jpg](https://i.postimg.cc/yYtCYrm7/Screenshot-20250324-020144.jpg)
+   ![uhh](https://static.wikia.nocookie.net/forsaken2024/images/d/d1/AnniTitle.png/revision/latest?cb=20250325045306)
 
-*(forgot who made the art.. sorry.)*
 
 hi, my name's **c00lkidd**! but you can also call me **turking**, **birthday battler**, **tumored battler** or **rochas313**!
 
@@ -16,7 +15,7 @@ i go by **he/it/xe/hate/corpse/party** respectfully, i do have a preference for 
 - I'm a (harmless) paraphile. I'm **objectum** and a **robloxphile/robloxium**.
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so!
 - I have no dni, I block **freely**.
-- I'm a yumeshipper.
+- I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't mind doubles interacting.
 - I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**, don't whine about it please.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
 - I'm the **BIGGEST** EXEC (TBB) fan, pt oomfs please gift me EXEC skins.
@@ -38,3 +37,4 @@ i go by **he/it/xe/hate/corpse/party** respectfully, i do have a preference for 
 - Limbus Company
 - **Flicker**
 - **The Battle Bricks**
+- **Just Shapes and Beats**

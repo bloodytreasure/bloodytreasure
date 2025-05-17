@@ -1,4 +1,4 @@
-   ## - " Nothing but the void, that's what you are from the inside ."
+   ## - " Nothing but the void, that's what you are from the inside . "
    
    ![uhh](https://i.postimg.cc/DfMQ8KD9/static-assets-upload12247706694833509683.png)
    *made by Barros123 on fandom.*

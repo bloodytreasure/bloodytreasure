@@ -1,14 +1,14 @@
    ## - " Nothing but the void, that's what you are from the inside . "
    
    ![uhh](https://i.postimg.cc/DfMQ8KD9/static-assets-upload12247706694833509683.png)
-   *made by Barros123 on fandom.*
+   *made by Barros123 on fandom wiki.*
 
 
-hi, my name's **c00lkidd**, but you can also call me **tb**, **slinger**, **bb**, **infernus** or **turking**.
+Hi, my name's **C00lkidd**, but you can also call me **TB**, **Slinger**, **BB**, **Infernus** or **Turking**.
 
-i'm open for nicknames :-)
+I'm open for nicknames.
 
-i go by **he/it/xe/hate/corpse/party** pronouns, i do have a preference for my xenos tho.
+I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for my xenos and it/its, tho.
 
 # BEFORE YOU INTERACT :
 
@@ -19,7 +19,7 @@ i go by **he/it/xe/hate/corpse/party** pronouns, i do have a preference for my x
 - I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't mind doubles interacting.
 - I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**. Don't whine about it.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
-- I'm the **BIGGEST** EXEC (TBB) fan, pt oomfs please gift me EXEC skins.
+- I'm the **BIGGEST** EXEC (TBB) fan, PT oomfs please gift me EXEC skins.
 
 
 # INTERESTS :

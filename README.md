@@ -31,6 +31,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - **In Plain Sight 2**
 - **The Battle Bricks**
 - **RAIGFORCE**
+- **Color Cruelty/Blud Obby**
 - **Flicker**
 - **Just Shapes and Beats**
 - **Old Roblox myths**

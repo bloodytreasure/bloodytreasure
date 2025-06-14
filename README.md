@@ -3,21 +3,21 @@
    ![uhh](https://i.postimg.cc/1XSDHB4G/9-JFIUJ2-GI9-QGJ12.gif)
 
 
-Hi, my name's **C00lkidd**, but you can also call me **TB**, **Slinger**, **BB**, **Infernus** or **Turking**.
+Hi, my name's **C00lkidd**, but you can also call me **TB**, **BB**, **Infernus**, **Turking** or **Artful**.
 
 I'm open for nicknames.
 
-*Side note, there are more names I go by on my Pronouns.cc. Go read it.*
+*Side note, there are more names I use on my **Pronouns.cc**. Go read it, dweeb.*
 
 I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for my xenos and it/its, tho.
 
 # BEFORE YOU INTERACT :
 
 - I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, etc.
-- I'm a (harmless) paraphile. I'm a **objectophile** and a **robloxphile** (which is a branch of **fictophilia**).
+- I'm a (harmless) paraphile. I'm a **objectophile** and a **robloxphile** (which is a branch of **fictophilia**). Don't talk to me if you're **pro-contact** or **neu-contact** tho, it's fucking disgusting.
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
-- I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't mind doubles interacting.
+- I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't really mind doubles interacting.
 - I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**. Don't fucking whine about it.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
 - I'm the **BIGGEST** EXEC (TBB) fan, PT oomfs please gift me EXEC skins.

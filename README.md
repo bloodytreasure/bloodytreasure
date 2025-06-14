@@ -13,15 +13,18 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 
 # BEFORE YOU INTERACT :
 
-- I make A LOT of **nsfw** jokes, my humor is also very based on **violent topics**, **slur usage**, etc.
-- I'm a (harmless) paraphile. I'm **objectum** and a **robloxphile/robloxium**.
+- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, etc.
+- I'm a (harmless) paraphile. I'm a **objectophile** and a **robloxphile** (which is a branch of **fictophilia**).
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
 - I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't mind doubles interacting.
-- I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**. Don't whine about it.
+- I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**. Don't fucking whine about it.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
 - I'm the **BIGGEST** EXEC (TBB) fan, PT oomfs please gift me EXEC skins.
 - I'm **x-tremely** hostile sometimes, and I very often have verbal shutdowns. If I'm not speaking **OR** speaking with emojis, please be mindful.
+- I don't know how to continue conversation, **please** be mindful.
+- A **LOT** of my jokes can be triggering. As I've mentioned before on my page, **ALWAYS INTERACT WITH X-TRA CAUTION**!!
+- I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
 
 # INTERESTS :
 *(***bold*** equals hyperfixiations OR things I'm a big fan of.)*
@@ -32,6 +35,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - **The Battle Bricks**
 - **RAIGFORCE**
 - **Color Cruelty/Blud Obby**
+- **Die of Death**
 - **Flicker**
 - **Just Shapes and Beats**
 - **Old Roblox myths**
@@ -42,9 +46,3 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - Limbus Company
 - Frozen Soul/Dream Game
 - Friday Night Funkin' — Hello John Doe
-
-# A FEW EXTRAS :
-
-- I don't know how to continue conversation, **please** be mindful.
-- A **LOT** of my jokes can be triggering. As I've mentioned before on my page, **ALWAYS INTERACT WITH EXTRA CAUTION**!!
-- I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.

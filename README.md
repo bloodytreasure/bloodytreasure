@@ -1,9 +1,8 @@
-   ## - " Your efforts are in vain, why even try ? "
-   
-   ![uhh](https://i.postimg.cc/1XSDHB4G/9-JFIUJ2-GI9-QGJ12.gif)
+![](https://i.postimg.cc/ZqhgbyX8/JRPortrait.png)  **" FLY HIGH !! "**
 
+![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
 
-Hi, my name's **C00lkidd**, but you can also call me **TB**, **BB**, **Infernus**, **Turking** or **Artful**.
+Hi, my name's **C00lkidd**, but you can also call me **TB**, **BB**, **Infernus**, **Turking** or **Jetrock**!
 
 I'm open for nicknames.
 
@@ -11,7 +10,9 @@ I'm open for nicknames.
 
 I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for my xenos and it/its, tho.
 
-# BEFORE YOU INTERACT :
+![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
+
+**BYI :**
 
 - I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, etc.
 - I'm a (harmless) paraphile. I'm a **objectophile** and a **robloxphile** (which is a branch of **fictophilia**). Don't talk to me if you're **pro-contact** or **neu-contact** tho, it's fucking disgusting.
@@ -26,7 +27,10 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - A **LOT** of my jokes can be triggering. As I've mentioned before on my page, **ALWAYS INTERACT WITH X-TRA CAUTION**!!
 - I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
 
-# INTERESTS :
+![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
+
+**INTERESTS :**
+
 *(***bold*** equals hyperfixiations OR things I'm a big fan of.)*
 
 - **Roblox in general**
@@ -46,3 +50,5 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - Limbus Company
 - Frozen Soul/Dream Game
 - Friday Night Funkin' — Hello John Doe
+
+![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)

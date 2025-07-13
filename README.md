@@ -26,6 +26,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - I don't know how to continue conversation, **please** be mindful.
 - A **LOT** of my jokes can be triggering. As I've mentioned before on my page, **ALWAYS INTERACT WITH X-TRA CAUTION**!!
 - I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
+- If you associate yourself with github users **@/Wakogma** and **@/Jardfan500**, politely **dni**.
 
 ![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
 

@@ -1,8 +1,8 @@
-![](https://i.postimg.cc/ZqhgbyX8/JRPortrait.png)  **" FLY HIGH !! "**
+![](https://i.postimg.cc/pdbYfkxq/Birthday-Bash-Placeholder-1.png)  **" Happy birthday, to me ! "**
 
-![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
+![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
 
-Hi, my name's **C00lkidd**, but you can also call me **TB**, **BB**, **Infernus**, **Turking** or **Jetrock**!
+Hi, my name's **C00lkidd**, but you can also call me **TB (or tumored battler)**, **BB (or birthday battler)**, **Infernus**, **Turking** or **Jetrock**!
 
 I'm open for nicknames.
 
@@ -10,7 +10,7 @@ I'm open for nicknames.
 
 I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for my xenos and it/its, tho.
 
-![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
+![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
 
 **BYI :**
 
@@ -28,7 +28,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
 - If you associate yourself with github users **@/Wakogma** and **@/Jardfan500**, politely **dni**.
 
-![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
+![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
 
 **INTERESTS :**
 
@@ -52,4 +52,6 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for 
 - Frozen Soul/Dream Game
 - Friday Night Funkin' — Hello John Doe
 
-![](https://i.postimg.cc/T2mtwPqQ/5766fe38.gif)
+![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
+
+# ![.](https://i.postimg.cc/tJkVLQ14/0e63e6b5.gif)

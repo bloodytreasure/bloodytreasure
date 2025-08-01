@@ -2,20 +2,20 @@
 
 ![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
 
-Hi, my name's **C00lkidd**, but you can also call me **TB (or tumored battler)**, **BB (or birthday battler)**, **Infernus**, **Turking** or **Jetrock**!
+Hi, my name's **Birthday Battler**, but you can call me **BB** for short!
 
-I'm open for nicknames.
+I'm open for nicknames, tho.
 
 *Side note, there are more names I use on my **Pronouns.cc**. Go read it, dweeb.*
 
-I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do have a preference for my xenos and it/its, tho.
+I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xenos, tho.
 
 ![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
 
 **BYI :**
 
-- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, etc.
-- I'm a (harmless) paraphile. I'm a **objectophile** and a **robloxphile** (which is a branch of **fictophilia**). Don't talk to me if you're **pro-contact** or **neu-contact** tho, it's fucking disgusting.
+- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, **suicide/self-harm jokes**, etc.
+- I'm a (harmless) paraphile. I'm a **objectophile/objectum** and a **robloxphile** (fancy term for **fictophilia** but with robloxians). Don't talk to me if you're **pro-contact** or **neutral-contact** for harmful paraphilias tho. It's fucking disgusting, go die.
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
 - I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't really mind doubles interacting.

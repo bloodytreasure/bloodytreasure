@@ -19,7 +19,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
 - I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't really mind doubles interacting.
-- I have two typing quirks **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**. Don't fucking whine about it.
+- I have two typing quirks **(z instead of s and 0 instead of o)**, but I don't always use it. If you can't understand me, **ask for a translation**. **Don't fucking whine about it**.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**.
 - I'm the **BIGGEST** EXEC (TBB) fan, PT oomfs please gift me EXEC skins.
 - I'm **x-tremely** hostile sometimes, and I don't know how to continue conversation.

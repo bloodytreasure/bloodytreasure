@@ -15,7 +15,6 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 **BYI :**
 
 - I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, **suicide/self-harm jokes**, etc.
-- I'm a (harmless) paraphile. I'm a **objectophile/objectum** and a **robloxphile** (fancy term for **fictophilia** but with robloxians). Don't talk to me if you're **pro-contact** or **neutral-contact** for harmful paraphilias tho. It's fucking disgusting, go die.
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
 - I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't really mind doubles interacting.
@@ -37,6 +36,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 - **In Plain Sight 2**
 - **The Battle Bricks**
 - **RAIGFORCE**
+- **Enfosi**
 - **Color Cruelty/Blud Obby**
 - **Die of Death**
 - **Flicker**

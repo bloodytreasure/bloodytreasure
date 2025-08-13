@@ -1,8 +1,8 @@
-![](https://i.postimg.cc/pdbYfkxq/Birthday-Bash-Placeholder-1.png)  **" Happy birthday, to me ! "**
+![](https://i.postimg.cc/PrPLHhCF/Borgack-F1-N.gif)  **" [DETONATING..] "**
 
-![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
+![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
 
-Hi, my name's **Birthday Battler**, but you can call me **BB** for short!
+Hi, my name's **Tumored Battler**, but you can call me **TB** for short.
 
 I'm open for nicknames, tho.
 
@@ -10,11 +10,11 @@ I'm open for nicknames, tho.
 
 I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xenos, tho.
 
-![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
+![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
 
 **BYI :**
 
-- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive slur usage**, **suicide/self-harm jokes**, etc.
+- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **x-cessive (reclaimable) slur usage**, **suicide/self-harm jokes**, etc.
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
 - I'm a yumeshipper. I'm **non-sharing** with EXEC, tho I don't really mind doubles interacting.
@@ -26,7 +26,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 - I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
 - If you associate yourself with github users **@/Wakogma** and **@/Jardfan500**, politely **dni**. I don't like those guys, thanks.
 
-![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
+![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
 
 **INTERESTS :**
 
@@ -48,6 +48,6 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 - The Robloxia: Until Dawn
 - Friday Night Funkin' — Hello John Doe
 
-![](https://i.postimg.cc/BnYBjDnn/12c3343b.gif)
+![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
 
-# ![.](https://i.postimg.cc/tJkVLQ14/0e63e6b5.gif)
+# ![.](https://i.postimg.cc/XNZGS4G1/3280dbc6.gif)

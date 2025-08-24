@@ -1,6 +1,6 @@
-![](https://i.postimg.cc/PrPLHhCF/Borgack-F1-N.gif)  **" [DETONATING..] "**
+![](https://i.postimg.cc/d3C4tnyk/Gergro-Render.png)  **" THINK FAST, CHUCKLENUTS! "**
 
-![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
+![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
 Hi, my name's **Tumored Battler**, but you can call me **TB** for short.
 
@@ -8,9 +8,9 @@ I'm open for nicknames, tho.
 
 *Side note, there are more names I use on my **Pronouns.cc**. Go read it, dweeb.*
 
-I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xenos, tho.
+I go by **it/its** pronouns, but I don't care if you use he/him.
 
-![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
+![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
 **BYI :**
 
@@ -26,7 +26,7 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 - I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
 - If you associate yourself with github users **@/Wakogma** and **@/Jardfan500**, politely **dni**. I don't like those guys, thanks.
 
-![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
+![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
 **INTERESTS :**
 
@@ -48,6 +48,6 @@ I go by **he/it/xe/hate/rot/corpse/party** pronouns. I do prefer it/its or my xe
 - The Robloxia: Until Dawn
 - Friday Night Funkin' — Hello John Doe
 
-![](https://i.postimg.cc/2yBfHH5T/03a17494.gif)
+![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
-# ![.](https://i.postimg.cc/XNZGS4G1/3280dbc6.gif)
+# ![.](https://i.postimg.cc/XqD44j97/31198496.gif)

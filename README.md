@@ -1,45 +1,13 @@
-![](https://i.postimg.cc/d3C4tnyk/Gergro-Render.png)  **" THINK FAST, CHUCKLENUTS! "**
+![](https://i.postimg.cc/d3C4tnyk/Gergro-Render.png)
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
-Hi, you can call me **TB** or **Radical**!
-
-I go by **it/its** pronouns, but I don't care if you use he/him.
+Yello! You can call me Gergro or Radi! I go by it/its pronouns mainly, but I don't mind he/him!
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
-**BEFORE YOU INTERACT :**
+**INTRODUCTION!!!**
 
-- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **excessive (reclaimable) slur usage**, **suicide/self-harm jokes**, etc. If this triggers you, **let me know**.
-- I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
-- I have no dni, I block **freely**.
-- I'm a yumeshipper. I'm **non-sharing** with [EXEC](https://the-battle-bricks.fandom.com/wiki/EXEC), tho I don't really mind doubles interacting I suppose.
-- If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**. Don't mention **ship discourse** around me either.
-- I'm **extremely** hostile sometimes, and I **don't know how** to continue conversation.
-- I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
-
-![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
-
-**INTERESTS :**
-
-*(***bold*** equals hyperfixations OR things I'm a big fan of.)*
-
-- **Roblox in general**
-- **In Plain Sight 2**
-- **The Battle Bricks**
-- **RAIGFORCE**
-- **Enfosi**
-- **Color Cruelty/Blud Obby**
-- **Die of Death**
-- **Flicker**
-- **Pressure**
-- **Old Roblox myths**
-- **Roblox hackers**
-- **Minus Elevation**
-- Forsaken
-- The Robloxia: Until Dawn
-- Friday Night Funkin' — Hello John Doe
-
-![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
+I'm a disabled, queer brazilian guy that does art and plays games! I like roblox games like **Enfosi, The Battle Bricks, Blud Obby, Die of Death, Minus Elevation, Depth Spelunking, Forsaken** and many others! I'm a bit of a hostile person, so interact with caution! I say slurs a lot, but only ones I can reclaim!! Sometimes I'm mean, but it's how I show affection, lol. I have a loving partner that I love too!
 
 # ![.](https://i.postimg.cc/XqD44j97/31198496.gif)

@@ -2,11 +2,7 @@
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
-Hi, my name's **Tumored Battler**, but you can call me **TB** for short.
-
-I'm open for nicknames, tho.
-
-*Side note, there are more names I use on my **Pronouns.cc**. Go read it, dweeb.*
+Hi, you can call me **TB** or **Radical**!
 
 I go by **it/its** pronouns, but I don't care if you use he/him.
 
@@ -14,16 +10,13 @@ I go by **it/its** pronouns, but I don't care if you use he/him.
 
 **BEFORE YOU INTERACT :**
 
-- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **excessive (reclaimable) slur usage**, **suicide/self-harm jokes**, etc.
+- I make A LOT of **nsfw** jokes. My humor is also very based on **violent topics**, **excessive (reclaimable) slur usage**, **suicide/self-harm jokes**, etc. If this triggers you, **let me know**.
 - I get comfortable **EASILY**. If you're uncomfortable by my actions, **please** tell me so.
 - I have no dni, I block **freely**.
-- I'm a yumeshipper. I'm **non-sharing** with [EXEC](https://the-battle-bricks.fandom.com/wiki/EXEC), tho I don't really mind doubles interacting.
-- I have two typing quirks I occasionally use **(z instead of s and 0 instead of o)**. If you can't understand me, **ask for a translation**. **Don't fucking whine about it**.
+- I'm a yumeshipper. I'm **non-sharing** with [EXEC](https://the-battle-bricks.fandom.com/wiki/EXEC), tho I don't really mind doubles interacting I suppose.
 - If you think it's okay to **send threats/wish harm** upon people over ships, please **limit interaction**. Don't mention **ship discourse** around me either.
-- I'm **extremely** hostile sometimes, and I don't know how to continue conversation.
-- A **LOT** of my jokes can be triggering. As I've mentioned before on my page, **ALWAYS INTERACT WITH CAUTION**.
+- I'm **extremely** hostile sometimes, and I **don't know how** to continue conversation.
 - I'm disabled, both **mentally and physically**. If you can't handle that, **block and move on**.
-- If you associate yourself with github users **@/Wakogma** and **@/Jardfan500**, politely **do not interact**. I don't like those guys, thanks.
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 

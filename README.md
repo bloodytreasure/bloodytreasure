@@ -2,11 +2,11 @@
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
-Yello! You can call me Gergro or Radi! I go by it/its pronouns mainly, but I don't mind he/him!
+Hello! You can call me DJ Radical! I go by it/its pronouns mainly, but I don't mind he/him!
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
-**INTRODUCTION!!!**
+**ABOUT ME!!!**
 
 I'm a disabled, queer brazilian guy that does art and plays games! I like roblox games like **Enfosi, The Battle Bricks, Blud Obby, Die of Death, Minus Elevation, Depth Spelunking, Forsaken, In Plain Sight 2** and many others! I'm a bit of a hostile person, so interact with caution! I say slurs a lot, but only ones I can reclaim!! Sometimes I'm mean, but it's how I show affection, lol. I have a loving partner that I love too!
 

@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/d3C4tnyk/Gergro-Render.png)
+![](https://i.postimg.cc/gkp5TVWc/Ivory.png)
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 

@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/gkp5TVWc/Ivory.png)
+![](https://i.postimg.cc/7hTYpFBg/76f7f775.gif)
 
 ![](https://i.postimg.cc/9MCWBNWV/b0f7aa34.gif)
 
